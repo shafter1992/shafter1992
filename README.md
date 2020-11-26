@@ -1,1 +1,1 @@
-Please visit my website <a href="http://www.justgocny.com/">Data HK</a> for daily updated information of Hongkongpools results. Website will be updated daily for the best convenience of our users.
+Please visit my website <a href="http://www.justgocny.com/">Data HK</a> or <a href="http://patricksomerville.com/">Pengeluaran HK 2020</a> for daily updated information of Hongkongpools results. Website will be updated daily for the best convenience of our users.
